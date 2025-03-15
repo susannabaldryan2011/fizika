@@ -1,0 +1,2 @@
+# fizika
+naxagcayin
